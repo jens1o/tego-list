@@ -1,1 +1,1 @@
-# tego-list
+# Tego List
